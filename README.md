@@ -1,0 +1,1 @@
+# tech-orda-MLandAI-by-Braincode-student-Abylay-Albanbekov
